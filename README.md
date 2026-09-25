@@ -1,5 +1,5 @@
 ㅤ ㅤ /)ㅤ /)  
-ㅤ ㅤ(｡•ㅅ•｡)〝₎₎   
+ㅤ ㅤ(｡•ㅅ•｡)〝₎₎ RetroPal Official  
 ╭──∪──∪──────────────── ✦ ⁺.  
 ┊ ⨳ [RetroPal Made By @6dny ⮺](https://github.com/6dny)  
 ┊ ㅤ ↳  @6dny Profile Page  
